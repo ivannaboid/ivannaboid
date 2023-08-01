@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ivannaboid
+- 👀 I’m interested in partnering up with developers
+- 💞️ I’m looking to collaborate on api projects, commissions are on the table
+- 📫 How to reach me: ivanna@deriv.com
